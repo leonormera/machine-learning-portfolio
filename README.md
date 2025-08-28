@@ -40,8 +40,8 @@ I’m a bilingual AI consultant and systems developer with over 12 years of expe
 
 ## 🔗 Connect with Me
 
-- 📧 Email: leonor.mera@example.com  
-- 🔗 LinkedIn: [linkedin.com/in/leonormera](https://www.linkedin.com/in/leonormera)  
+- 📧 Email: leonor.mera@gmail.com  
+- 🔗 LinkedIn: (https://www.linkedin.com/in/leonor-m-50b01138/)  
 
 
 ## 🗂 Carpetas y archivos
